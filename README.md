@@ -1,2 +1,0 @@
-# slozhna
-ochen slozhna
